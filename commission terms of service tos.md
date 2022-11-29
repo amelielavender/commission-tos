@@ -1,12 +1,12 @@
 # Before you contact
 ## Before requesting a commission slot, have these items prepared:
-1. Reference images. At least two is preferred 
+1. Reference images: At least two is preferred 
     * Must be clear and reasonably sized
     * If no references exist, make sure the written description is clear, concise, and remains unambiguous throughout
-2. Half payment upfront. Icons and commissions less than $40 require upfront payment
+2. Payment: most of the time, half payment upfront will be required. Icons and commissions less than $40 require a complete upfront payment
 3. **If you have a deadline in mind, please make this known right away so I can see if I can fit it into my schedule and queue**
 ## Process
-Please contact me with your ideas and have your reference images **attached**. I will respond via email if I can take your commission! If necessary, we can discuss your ideas further. Payment upfront is required to obtain a slot in the queue. Payments are done via Paypal invoice in either half or full amounts depending on the type of commission.
+Please contact me with your ideas and have your reference images **ready or attached**. I will respond via email if I can take your commission! If necessary, we can discuss your ideas further. Payment upfront is required to obtain a slot in the queue. Payments are done via Paypal invoice in either half or full amounts depending on the type of commission.
 
 When I begin work on your slot, I will draw you a quick sketch and email you for approval.
 
